@@ -1,1 +1,1 @@
-# Zadacive-ne-se-ovde-so-cel-za-preepisuvanje-tuku-za-ucenje
+# Zadacive ne se ovde za prepisuvanje tuku za ucenje. 
