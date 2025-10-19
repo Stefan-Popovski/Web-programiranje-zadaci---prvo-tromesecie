@@ -1,1 +1,1 @@
-# Web-programiranje-zadaci---prvo-tromesecie
+# Zadacive-ne-se-ovde-so-cel-za-preepisuvanje-tuku-za-ucenje
